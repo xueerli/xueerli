@@ -1,4 +1,4 @@
-### Hi there 👋
+###  May you be free ☀️
 
 <!--
 **xueerli/xueerli** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
